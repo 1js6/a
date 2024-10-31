@@ -13,7 +13,7 @@ Black Myth: Wukong Mobile là một trò chơi hành động nhập vai cực k�
 Chiến đấu chính là thứ làm nên thương hiệu của Black Myth: Wukong Mobile. Để có thể chinh phục tựa game này, bạn cần phải nâng cao sức mạnh của nhân vật một cách liên tục. Nâng cao sức mạnh bằng những điểm kỹ năng, học thêm kỹ năng mới là những thứ bạn cần để trở nên mạnh hơn. Về phong cách chiến đấu, Black Myth: Wukong Mobile khá giống nhiều tựa game 3D hiện nay nên mình sẽ không nhắc nhiều thêm nữa. Sự thú vị là tựa game này có nhiều kết thúc khác nhau và nhiều Easter egg cực kỳ thú vị mà nhiều người chơi đã tồn rất nhiều thời gian tìm hiểu.
 
 ## Tải Black Myth: Wukong Mobile Pixel APK v1.0 cho điện thoại
-Link tải: [DOWNLOAD](https://phanmemnet.com/tai-black-myth-wukong-mobile-apk-v0-0-1-cho-dien-thoai/)
+Link tải: [**DOWNLOAD**](https://phanmemnet.com/tai-black-myth-wukong-mobile-apk-v0-0-1-cho-dien-thoai/)
 
 ## Hướng dẫn
 Tải về máy android, cài đặt và chơi
